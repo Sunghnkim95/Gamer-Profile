@@ -1,5 +1,3 @@
-future project
-
 Welcome to my Gamer-profile!
 
 This is purely for funs and nothing professional! 
